@@ -1,4 +1,5 @@
-🪽  𝘚𝘵𝘢𝘵𝘶𝘴 ・ De𝖺𝖽? ✿ " „*Please Parrot, Please give that to me before you hurt yourself..* " ꒦
+   🪽  𝘚𝘵𝘢𝘵𝘶𝘴 ・ De𝖺𝖽? ✿ " „„ *Please Parrot, Please give that to me before you hurt yourself..* " ꒦
+
 ![](https://cdn.discordapp.com/attachments/990114425505734716/1517477927523061760/8144548261fa065bc501b8d34f22126d.jpg?ex=6a366cf3&is=6a351b73&hm=ec8f7075aa9530829d3ad63c0a501f4cee0c39308f2237b8fd88b33b31389a15&) 
 _ _                           𖥻 🌊 ៸៸ **F`o`r`g`o`t`t`e`n S`i`n`n`e`r` ？！** 𓂃୭
 
@@ -25,7 +26,11 @@ _ _                           ᗢ ﹒ Wouldn't specifically self research for fu
 ⌗ ʕ •ᴥ• ʔ → __𝙁𝙖𝙫𝙨 𝙤𝙤𝙢𝙛__ꜝꜝ୨`🪽`୧
 
 ꒷︶°︶ ₊ ˚ʚ`💤`ɞ˚ ₊ ︶°︶꒦
+
 ┆꒰`🫧`꒱﹕𝘙𝘌4𝘋𝘌𝘙5, 𝘚𝘬𝘺𝘭𝘢𝘳/𝘈𝘢𝘳𝘰𝘯, 𝘈𝘯𝘵𝘪 𓂃 . ♡
+
 ﹕꒰`💤`꒱﹕~~Yūren?~~ Jei!, Asteroid 𓂃 . ♡
+
 ┆꒰`🌊`꒱﹕“ Drop the spyglass, Parrot. ” 𓂃 . ♡
+
 ꒷︶°︶ ₊ ˚ʚ`🪼`ɞ˚ ₊ ︶°︶꒦
