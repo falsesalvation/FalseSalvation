@@ -1,11 +1,11 @@
-   🪽  𝘚𝘵𝘢𝘵𝘶𝘴 ・ De𝖺𝖽? ✿ " „„ *Please Parrot, Please give that to me before you hurt yourself..* " ꒦
+_ _    🪽  𝘚𝘵𝘢𝘵𝘶𝘴 ・ De𝖺𝖽? ✿ " „„ *Please Parrot, Please give that to me before you hurt yourself..* " ꒦
 
 ![](https://cdn.discordapp.com/attachments/990114425505734716/1517477927523061760/8144548261fa065bc501b8d34f22126d.jpg?ex=6a366cf3&is=6a351b73&hm=ec8f7075aa9530829d3ad63c0a501f4cee0c39308f2237b8fd88b33b31389a15&) 
 _ _                           𖥻 🌊 ៸៸ **F`o`r`g`o`t`t`e`n S`i`n`n`e`r` ？！** 𓂃୭
 
 
 
-_ _                           ៹ ‹𝟹 *Helloo! Salvation is here but you can call me Anzhel for those who don't know me yet. I won't friended with anyone under 16 due to the fact I'm an adult 18+ !! not 21+ btw but ANTI akan Psychadelie is an exception like top exception. also Skylar/Aaron is an exception because I thought he was 16 but actually under 16.*
+_ _                           ៹ ‹𝟹 *Helloo! Salvation is here but you can call me Anzhel for those who don't know me yet. I won't friended with anyone under 16 due to the fact I'm an adult 18+ !! not 21+ btw but ANTI aka Psychadelie is an exception like top exception. also Skylar/Aaron is an exception because I thought he was 16 but actually under 16.*
 
 
 
@@ -23,7 +23,7 @@ _ _                           ᗢ ﹒ Wouldn't specifically self research for fu
 
 
    
-⌗ ʕ •ᴥ• ʔ → __𝙁𝙖𝙫𝙨 𝙤𝙤𝙢𝙛__ꜝꜝ୨`🪽`୧
+⌗ ʕ •ᴥ• ʔ → 𝙁𝙖𝙫𝙨 𝙤𝙤𝙢𝙛 ꜝꜝ୨`🪽`୧
 
 ꒷︶°︶ ₊ ˚ʚ`💤`ɞ˚ ₊ ︶°︶꒦
 
