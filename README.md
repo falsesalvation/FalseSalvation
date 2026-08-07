@@ -6,7 +6,7 @@
 
 
 
-—      _ _                           ៹ ‹𝟹 *Helloo! Salvation is here but you can call me Anzhel / Lufies for those who don't know me yet. I won't be friends with anyone under 16 due to the fact I'm young adult and don't want minors risked be in bad environment because of me but ANTI aka Psychadelie is an exception like TOP exception. also Skylar/Aaron is an exception because I thought he **was** 16 but actually under 16.*
+—      _ _                           ៹ ‹𝟹 *Helloo! Salvation is here but you can call me Anzhel / Lufies for those who don't know me yet. I won't be friends with anyone under 16 due to the fact I'm young adult and don't want minors risked to be in bad environment because of me but ANTI aka Psychadelie is an exception like TOP exception. also Skylar/Aaron is an exception because I thought he **was** 16 but actually under 16.*
 
 
 
