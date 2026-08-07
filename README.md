@@ -1,6 +1,7 @@
 —                       🪽  𝘚𝘵𝘢𝘵𝘶𝘴 ・ De𝖺𝖽? ✿ " „„ *Please Parrot, Please give that to me before you hurt yourself..* " ꒦
 
-![](https://klipy.com/gifs/wifies-parrotx2) 
+<img width="736" height="414" alt="1000271246" src="https://github.com/user-attachments/assets/af6fbeaa-fc9f-4eaa-85a7-9bd0b028099b" />
+
 —  _ _                           𖥻 🌊 ៸៸ **I`m`m`o`r`t`a`l` S`i`n`n`e`r` ？！** 𓂃୭
 
 
@@ -20,7 +21,9 @@
 —    why not go to professional? Inflation. it's expensive and I don't even have money for diagnose or anything
 
 
-![](https://discord.com/channels/@me/1388779207672463472/1535348822778323134) 
+
+<img width="435" height="431" alt="1000271244" src="https://github.com/user-attachments/assets/b2819cbe-6e4c-4b4c-9dbe-9455e1ce3d15" />
+
 
 
    
@@ -35,3 +38,8 @@
 ┆꒰`🌊`꒱﹕“ Drop the spyglass, Parrot. ” 𓂃 .♡
 
 ꒷︶°︶ ₊ ˚ʚ`🪼`ɞ˚ ₊ ︶°︶꒦
+
+
+
+https://github.com/user-attachments/assets/2e1aa1b1-b1cf-4277-b907-87b843b88051
+
