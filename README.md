@@ -14,7 +14,7 @@
 
 
 
-—      _ _                           ៹ ‹𝟹 *I block freely despite having DNI list cardd on working progress but it would be more of reminder that relationship between people are fragile so does trust because honestly everyone is toxic and selfish in their own way and it just how long they could handle each other. I'm also late reply and accidentally not talking with people for long time because I'm easily drained and have fast social battery drains after interaction sometimes or it's because I was so distracted.*
+—      _ _                           ៹ ‹𝟹 *I block freely despite having DNI list cardd but it would be more of reminder that relationship between people are fragile so does trust because honestly everyone is toxic and selfish in their own way and it just how long they could handle each other. I'm also late reply and accidentally not talking with people for long time because I'm easily drained and have fast social battery drains after interaction sometimes or it's because I was so distracted.*
 
 —      _ _                           ᗢ ﹒ Wouldn't specifically self research for fun because it's morely understanding to myself more? but take it as a possibility or some chance that it might be true that I have PTSD, Symptoms of Eating disorder?, Hypersexual?, Insomnia. 
 
