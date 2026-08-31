@@ -6,17 +6,17 @@
 
 
 
-—      _ _                           ៹ ‹𝟹 *Helloo! Salvation is here but you can call me Anzhel / Lufies for those who don't know me yet. I won't be friends with anyone under 16 due to the fact I'm young adult and don't want minors risked to be in bad environment because of me but ANTI aka Psychadelie is an exception like TOP exception. also Skylar/Aaron is an exception because I thought he **was** 16 but actually under 16.*
+—      _ _                           ៹ ‹𝟹 *Helloo! Salvation is here but you can call me Anzhel / Lufies for those who don't know me yet. I won't be very interactive guy who talks 24/7 with people due to busy schedule also low movitation to socialize but I do have few exception which is RQ4,Skylar,and Psychadelie yes specifically her even with DNI status.*
 
 
 
-—     _ _                           × *I'm kind of scrict and would say rarely made exception for people because it is what it is. I won't be friends with anyone under 16 but I would interact as in socializing because it's not like I could detect -16 and avoid them 24/7 but wouldn't considered them friends or anything.*
+—     _ _                           × *I'm kind of chill and easy going person if we are like clicked like puzzle pieces you know? but I'm just usually awkward and shy— I won't exactly talk anyone much plus I get anxious talking to new people as well.*
 
 
 
 —      _ _                           ៹ ‹𝟹 *I block freely despite having DNI list cardd but it would be more of reminder that relationship between people are fragile so does trust because honestly everyone is toxic and selfish in their own way and it just how long they could handle each other. I'm also late reply and accidentally not talking with people for long time because I'm easily drained and have fast social battery drains after interaction sometimes or it's because I was so distracted.*
 
-—      _ _                           ᗢ ﹒ Wouldn't specifically self research for fun because it's morely understanding to myself more? but take it as a possibility or some chance that it might be true that I have PTSD, Symptoms of Eating disorder?, Hypersexual?, Insomnia. 
+—      _ _                           ᗢ ﹒ Wouldn't specifically self research for fun because it's morely understanding to myself more? but take it as a possibility or some chance that it might be true that I have PTSD, Symptoms of ED, Hypersexual?, Insomnia. 
 
 —    why not go to professional? Inflation. it's expensive and I don't even have money for diagnose or anything
 
